@@ -1,4 +1,12 @@
-### Hi there 👋
+### wadupp!!! 👋
+
+I'm some random guy who is playing with Discord bots mostly, find me on my [Discord server](https://emojibot.xyz/server) also as eren#1234. 
+Gotta love the bio tho. 
+
+check out my latest project: 
+https://emojibot.xyz :sunglasses:
+https://top.gg/bot/emoji
+
 
 <!--
 **erenozer/erenozer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
