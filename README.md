@@ -1,6 +1,6 @@
 ### wadupp!!! 👋
 
-I'm your average person who plays with Discord bots mostly, find me on my [server](https://emojibot.xyz/server) as eren#1234. And before you say, yes there really isn't anything useful on my profile (at least publicly ;).
+I'm your average person who plays with Discord bots mostly, find me on my [server](https://emojibot.xyz/server) as eren#1234. And before you say, yes there really isn't anything useful on my profile (at least publicly 😎).
 
 check out my latest project: 
 https://emojibot.xyz :sunglasses:
