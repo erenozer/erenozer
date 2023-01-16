@@ -1,6 +1,6 @@
 ### wadupp!!! 👋
 
-find me on my [server](discord.gg/U5v2csS) as eren#1234
+find me on my [server](https://discord.gg/U5v2csS) as eren#1234
 
 
 <!--
